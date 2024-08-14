@@ -9,4 +9,6 @@ servo de Deus
 
 Estudante
 
-Gosto de comer ![](https://www.google.com/imgres?q=comida%20emoji&imgurl=https%3A%2F%2Fimages.emojiterra.com%2Fgoogle%2Fnoto-emoji%2Funicode-15.1%2Fcolor%2F1024px%2F1f355.png&imgrefurl=https%3A%2F%2Femojiterra.com%2Fpt%2Ffatia-de-pizza%2F&docid=v1PO8SZsRUsThM&tbnid=Jw75CmIwuKgFnM&vet=12ahUKEwj-jdqAwvSHAxWYq5UCHaKfCO8QM3oECBgQAA..i&w=1024&h=1024&hcb=2&ved=2ahUKEwj-jdqAwvSHAxWYq5UCHaKfCO8QM3oECBgQAA)
+Gosto de comer 
+
+!!!!! ![.](https://s2-g1.glbimg.com/vOCKWWloAgKghdK69ovb9nsdhok=/1200x/smart/filters:cover():strip_icc()/i.s3.glbimg.com/v1/AUTH_59edd422c0c84a879bd37670ae4f538a/internal_photos/bs/2021/3/D/i0CmvBS7qJBFqyA1NW3w/leo-luns.jpg)
