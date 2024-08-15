@@ -5,11 +5,19 @@ Estou etudando na [Alura](https://www.alura.com.br/)
 
 15 anos(2009)
 
-servo de Deus
+servo de Deus na CCB
+
+Aprendendo saxophone
 
 Estudante
 
 Gosto de comer 
+
+Sou, em humildes palavras da minha parte uma pessoa que preza pela liberdade
+
+Prezo por um bom negócio, e gosto de um estudo qualificado para que eu esteja preparado para as altas dificuldades da vida
+
+Pretendo, futuramente cursar direito, o qual tenho a inteção de me especialiar na área de negócios imobiliarios
 
 Entre em contato comigo em lucas.sturiao.franca@escola.pr.gov.br
 
