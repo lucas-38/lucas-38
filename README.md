@@ -13,6 +13,8 @@ Estudante
 
 Gosto de comer 
 
+Faço cuso de ingles e curso preparatório a vestibula
+
 Sou, em humildes palavras da minha parte uma pessoa que preza pela liberdade
 
 Prezo por um bom negócio, e gosto de um estudo qualificado para que eu esteja preparado para as altas dificuldades da vida
