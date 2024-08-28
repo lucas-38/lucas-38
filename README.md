@@ -13,7 +13,7 @@ Estudante
 
 Gosto de comer 
 
-Faço cuso de ingles e curso preparatório a vestibula
+Faço curso de ingles e curso preparatório a vestibula
 
 Sou, em humildes palavras da minha parte uma pessoa que preza pela liberdade
 
